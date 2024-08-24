@@ -67,4 +67,4 @@ The Kaamo Club - Discord Server:
 https://discord.gg/Qv8zTur
 
 Batman's Bats Discord Server (My Server) for everything Batman including rare Batman games: 
-https://discord.com/invite/3Wva3dJNdv
+https://discord.com/invite/3Wva3dJNdv 
