@@ -1,5 +1,7 @@
 Galaxy on Fire 2 Maxed Out Fast Start Saved Game for GOF2 HD FULL & RE-FHD!! The game comes with EVERYTHING UNLOCKED & AVAILABLE!! 
 
+https://youtu.be/6-UKQPlnaAo?si=slWice0ul0EyIiei
+
 • All Systems and Planets Unlocked on the Map! 
 • All Blueprints collected! 
 • All Medals! 
