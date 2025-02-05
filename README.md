@@ -1,4 +1,4 @@
-Galaxy on Fire 2 Maxed Out Fast Start Saved Game for GOF2 HD FULL & RE-FHD!! The game comes with EVERYTHING UNLOCKED & AVAILABLE!! 
+Galaxy on Fire 2 Maxed Out Fast Start Saved Game for GOF2 HD FULL & RE-FHD!! The game comes with EVERYTHING UNLOCKED & AVAILABLE!! **BE SURE TO DOWNLOAD THE NEWEST RELEASE, INCLUDES MAJOR BUG FIX IN MOST WANTED STORYLINE**
 
 https://youtu.be/6-UKQPlnaAo?si=slWice0ul0EyIiei
 
